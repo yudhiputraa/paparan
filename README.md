@@ -1,0 +1,2 @@
+# paparan
+tugas pk kwu
